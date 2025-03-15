@@ -1,1 +1,1 @@
-<img src="https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExc2M3OXdjdjF2dnlsd3NwbXZsdmcwNzE5Y2l1aGJsdGVuaXNzeGlveSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/U4w70V3qqkZn8A0OwX/200.gif">
+
